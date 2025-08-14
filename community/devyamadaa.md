@@ -1,0 +1,1 @@
+Sou o Lucas Yamada e estou cursando Engenharia de Software no segundo periodo.
