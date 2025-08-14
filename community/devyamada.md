@@ -1,0 +1,1 @@
+Eu sou o Lucas Yamada e estou no segundo periodo de engenharia de software, realizando varios cursos pela Dio.
